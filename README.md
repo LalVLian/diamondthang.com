@@ -1,2 +1,0 @@
-# diamondthang.com
- 
